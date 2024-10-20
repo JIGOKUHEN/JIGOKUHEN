@@ -1,4 +1,3 @@
-![Visitor Count](https://img.shields.io/badge/jimmy_haters_-blue)
 
 ***
 
