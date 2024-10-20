@@ -1,3 +1,6 @@
+![Static Badge](https://img.shields.io/badge/jimmy_haters-1_-blue)
+
+
 ***
 
 projmoon/mouthwashing/phighting/rpgmakers
