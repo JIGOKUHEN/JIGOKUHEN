@@ -1,4 +1,4 @@
-18↓ he/him pronouns and taken
+he/him pronouns and taken
 
 projmoon/mouthwashing/phighting/rpgmakers
 
