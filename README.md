@@ -1,5 +1,4 @@
-![Static Badge](https://img.shields.io/badge/jimmy_haters-1_-blue)
-
+![Visitor Count](https://img.shields.io/badge/jimmy_haters_-blue)
 
 ***
 
