@@ -1,4 +1,6 @@
 ***
+feel free to call me by current display name on my github or ken (from my username idk)
+***
 im obsessed with playing fisch roblox hmu if you play
 ***
 
