@@ -1,7 +1,7 @@
 ***
 feel free to call me by current display name on my github or ishy
 ***
-im obsessed with playing fisch roblox hmu if you play
+im obsessed with playing fisch roblox hmu if you play . I DONT SHIP SANCHODON
 ***
 
 projmoon/mouthwashing/phighting/rpgmakers
